@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Julio Henrique Berolucci
+- 👀 I’m interested in Working
+- 🌱 I’m currently learning different things
+- 💞️ I’m looking to collaborate on Jesus
+- 📫 How to reach me use my email juliohenriquebertolucci@gmail.com or my number 11 913339427
+- ⚡ Fun fact: i cant talk with people properly
